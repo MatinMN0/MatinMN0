@@ -15,5 +15,5 @@
 
 
  ___________________________________________________
-![My Image](https://www.mediafire.com/file/3iz4q5wu4rujxh3/Jafar.png/file)
+![My Image](https://biaupload.com/do.php?imgf=org-5bd26349863b1.png)
  
