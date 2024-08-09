@@ -7,7 +7,7 @@
 # 🧾    𝒀𝒐𝒖 𝒄𝒂𝒏 𝒇𝒐𝒍𝒍𝒐𝒘 𝒎𝒆 𝒐𝒏 𝒐𝒕𝒉𝒆𝒓 𝒏𝒆𝒕𝒘𝒐𝒓𝒌𝒔 :
 
 
-- ### Discord Server : [Salamis](https://discord.gg/r2uPzSgSxE)
+- ### Discord Server : [Discord Server](https://discord.gg/r2uPzSgSxE)
 
 - ### Tiktok : [Tiktok](https://www.tiktok.com/@matin_mnw)
 
